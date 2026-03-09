@@ -1,0 +1,64 @@
+# F/ACE – Supernova
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+気が遠くなるほどの時の流れの中僕ら
+巡り合った幾千の星達から見つけた
+We're shining star
+何より輝く first star
+煌めいた
+Beautiful star
+僕らは新世界の star
+新しい景色を見せてあげよう
+声は届いてるから
+光照らすよ今
+滾る想いが起こす大爆発
+Supernova
+新しい時代を作るんだ 想像を超えて
+Supernova
+同じ時代に生まれた奇跡
+愉しまなきゃ損 (だぜ song song song)
+歌え (sing sing sing)
+高らかに声を重ねたら
+Song song song
+歌え (sing sing sing)
+今一つに煌めいて燃える
+Supernova
+やりたいこと我慢してちゃ何も始まんないよね
+自由にとからしくとか何とか言ってそれが一番難しい
+よね
+この music 鳴る間で良いから
+曝け出してみない?意外とイケるかも come on
+Yes!!
+創造は全ての始まりなんだ
+誰も捉えきれないスピードで走れ Free Planet
+ついて来て
+願いはきっと届くから
+光照らすよ今
+滾る想いが起こす大爆発
+Supernova
+僕らは銀河を駆けて 新時代へと
+Supernova
+同じ時代に生まれた奇跡
+愉しまなきゃ損 (だぜ song song song)
+歌え (sing sing sing)
+高らかに声を重ねたら
+Song song song
+歌え (sing sing sing)
+今一つに煌めいて燃える
+Supernova
+期待して良いから
+必ず掴むんだ
+約束した世界見に行こう
+Uhh 想像を超えて
+僕ら同じ時代 生まれた奇跡
+oh yeah
+The song song song
+歌え (sing sing sing)
+高らかに声を重ねたら
+Song song song
+歌え (sing sing sing)
+今一つに煌めいて燃える
+Supernova
+```
